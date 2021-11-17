@@ -1,6 +1,6 @@
 ## BadassMuthafucka
 
-pumching data in the face since 2010.
+punching data in the face since 2010.
 
 ### Personal Projects
 
