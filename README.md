@@ -1,5 +1,3 @@
-![profileimage](https://avatars.githubusercontent.com/u/45046316?s=400&v=4)
-
 ## BadassMuthafucka
 
 punching data in the face since 2010.
